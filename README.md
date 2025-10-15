@@ -1,0 +1,1 @@
+# best-pickleball-paddles-for-intermediate-players
